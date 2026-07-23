@@ -1,4 +1,4 @@
-<h3 align="center"> The Crisis Show of Symphony Soldier </h3>
+<h2 align="center"> The Crisis Show of Symphony Soldier </h2>
 <p align="center">
 <img src="https://static.tweaktown.com/content/8/5/8583_06_final-fantasy-xv-review_full.jpg"> <br>
 𝑬𝒗𝒆𝒓𝒚 𝒍𝒐𝒗𝒆 𝒔𝒐𝒏𝒈 𝒊𝒔 𝒐𝒖𝒓 𝒍𝒐𝒓𝒆 <br>
