@@ -14,7 +14,10 @@ Actually <a href="https://github.com/HerWordskill">my bf @HerWordsKill</a> is th
 ─ ཐི ⋅ 🫀 ⋅ ཋྀ ─ <br>
   <br>
 Pony town's 𝗡𝗼𝗰𝘁𝗶𝘀 𝗟𝘂𝗰𝗶𝘀 𝗖𝗮𝗲𝗹𝘂𝗺 <br>
-<a href="https://github.com/title-town">title-town</a>, <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>
+<a href="https://github.com/title-town">title-town</a>, <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>, <a href="https://github.com/piddlesjet">piddlesjet</a> <br>
+  <br>
+Pony town's 𝗧𝗶𝗰𝗰𝗶 𝗧𝗼𝗯𝘆 <br>
+<a href="https://github.com/piddlesjet">piddlesjet</a>
 </details>
 </div>
 <p align="center">
