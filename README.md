@@ -13,11 +13,14 @@ Actually <a href="https://github.com/HerWordskill">my bf @HerWordsKill</a> is th
   <br>
 ─ ཐི ⋅ 🫀 ⋅ ཋྀ ─ <br>
   <br>
-Pony town's 𝗡𝗼𝗰𝘁𝗶𝘀 𝗟𝘂𝗰𝗶𝘀 𝗖𝗮𝗲𝗹𝘂𝗺 <br>
+Pony town's 𝗡𝗼𝗰𝘁𝗶𝘀 𝗟𝘂𝗰𝗶𝘀 𝗖𝗮𝗲𝗹𝘂𝗺 (𝗙𝗙𝗫𝗩 + 𝗙𝗙𝗫𝗜𝗜𝗜 𝗩𝗲𝗿𝘀𝘂𝘀) <br>
 <a href="https://github.com/title-town">title-town</a>, <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>, <a href="https://github.com/piddlesjet">piddlesjet</a> <br>
   <br>
-Pony town's 𝗧𝗶𝗰𝗰𝗶 𝗧𝗼𝗯𝘆 <br>
-<a href="https://github.com/piddlesjet">piddlesjet</a>
+Pony town's 𝗧𝗶𝗰𝗰𝗶 𝗧𝗼𝗯𝘆 (𝗖𝗿𝗲𝗲𝗽𝘆𝗽𝗮𝘀𝘁𝗮) <br>
+<a href="https://github.com/piddlesjet">piddlesjet</a> <br>
+<br>
+Pony town's 𝗦𝗵𝗶𝗸𝗶 (𝗧𝗼𝗴𝗮𝗶𝗻𝘂 𝗻𝗼 𝗖𝗵𝗶) <br>
+<a href="https://github.com/Knox-Event">Knox-Event</a> <br>
 </details>
 </div>
 <p align="center">
