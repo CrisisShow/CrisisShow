@@ -3,13 +3,13 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/9d6180bc6b44b754a632dfcf72edc072/c3b14e17e06f27f5-7a/s400x600/3d13f7c000fcdc62ebe806cf97d410b5b44e96af.gifv"> <img src="https://64.media.tumblr.com/669d2f5a7c932455c99128873531896f/9ab36cfb67d17c7e-63/s500x750/abef5769c99303f0d4c9f6cfd27ea6f8d8258de5.gifv" width=300> <br>
+  <img src="https://64.media.tumblr.com/e7eaf2041a227187ca860eb8006acb7e/ddac6970d3deab0e-d7/s400x600/88b06252c62a916c2d24ac6f8ee00e44926febd0.gifv" width=600> <br>
   <img src="https://64.media.tumblr.com/3b5fe7a2ff11dd4bd5d68da7e77a75ec/tumblr_ol8tennqvz1w0nu3io1_500.gifv" width=300>
   <img src="https://64.media.tumblr.com/b791a93e933fa30f413d241713d8f11c/tumblr_opl1blzjGP1tfsup9o1_500.gifv" width=300> <br>
   <div align="center">
 <details>
 <summary><b>Nominations</b></summary>
-Actually <a href="https://github.com/HerWordskill">my bf @HerWordsKill</a> is the one who always nominated for me, tysm my love ^_^ <br>
+Actually <a href="https://github.com/HerWordskill">lili @HerWordsKill</a> is the one who always nominated for me, tysm my love ^_^ <br>
   <br>
 ─ ཐི ⋅ 🫀 ⋅ ཋྀ ─ <br>
   <br>
